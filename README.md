@@ -4,9 +4,7 @@ Getsafe Insurtech Co.- STUFF BREAKS, BUT IT'LL NEVER BREAK YOU
  #                                 InsurTech Company:        
 ### **Getsafe**
 
-![getsafe_stuff.png](https://ibb.co/5h6VNqx)!!(https://ibb.co/5h6VNqx)[getsafe_stuff.png]
 
-![getsafe-stuff](https://i.ibb.co/JjKPfXF/getsafe-stuff.jpg)
 
 
 
